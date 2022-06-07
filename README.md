@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ramzi13.github.io/rsschool-cv/cvg
