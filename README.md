@@ -1,1 +1,1 @@
-https://ramzi13.github.io/rsschool-cv/cvg
+https://ramzi13.github.io/rsschool-cv/cv
